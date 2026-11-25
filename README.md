@@ -1,2 +1,0 @@
-# OM-ELECTRONIC
-eletronics
